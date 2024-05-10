@@ -1,2 +1,1 @@
-https://images.app.goo.gl/UPdUS3vaPvDKbcuM6
-walk and talk
+https://www.google.com/imgres?imgurl=https%3A%2F%2Fstatic1.thegamerimages.com%2Fwordpress%2Fwp-content%2Fuploads%2F2021%2F03%2FFeatured-Image_Omori-Group-Hug-Cropped.jpg&tbnid=l5WWczJxuU-L2M&vet=1&imgrefurl=https%3A%2F%2Fwww.thegamer.com%2Fomori-starter-tips%2F&docid=6rwG3yGYMmv-kM&w=1710&h=900&source=sh%2Fx%2Fim%2Fm5%2F2&kgs=d044c888450ac588&shem=abme%2Ctrie
